@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌐 Hi! I’m Octavian  <br>💼 Project Manager at Elevance IT  <br>🔥 Driven to help teams bring ideas to life  <br>📬 Open to connect and collaborate!
+🌐 Hi! I’m Oktavian  <br>💼 Project Manager at Elevance IT  <br>🔥 Driven to help teams bring ideas to life  <br>📬 Open to connect and collaborate!
 
 
 ## 🌐 Socials:
