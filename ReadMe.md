@@ -5,8 +5,8 @@
 [**[For Companies](https://tally.so/r/3lldZB)**]
 [**[For Developers](https://tally.so/r/3j9Qza)**]
 
-[**[Chat With Me](https://www.linkedin.com/in/dimetrix)**]
-[**[Work With Me](https://www.linkedin.com/in/dimetrix)**]
+[**[Chat With Me](https://www.linkedin.com/in/oktavian-baranchuk)**]
+[**[Work With Me](https://www.linkedin.com/in/oktavian-baranchuk)**]
 
 # 💫 About Me:
 🌐 Hi! I’m Oktavian  <br>💼 Project Manager at Elevance IT  <br>🔥 Driven to help teams bring ideas to life  <br>📬 Open to connect and collaborate!
