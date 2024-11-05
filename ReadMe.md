@@ -1,7 +1,7 @@
 <a href="https://www.linkedin.com/in/oktavian-baranchuk-b0537623b" target="_blank"><img width="100%" src="./hero2.png"></a>
 [**[Hire A Talent](https://tally.so/r/3lldZB)**]
 [**[Request A Quote](https://tally.so/r/3lldZB)**]
-[**[Find A Jobs](https://tally.so/r/3j9Qza)**] \_\_\_
+[**[Find A Job](https://tally.so/r/3j9Qza)**] \_\_\_
 [**[For Companies](https://tally.so/r/3lldZB)**]
 [**[For Developers](https://tally.so/r/3j9Qza)**]
 
