@@ -1,3 +1,13 @@
+<a href="https://www.linkedin.com/in/oktavian-baranchuk" target="_blank"><img width="100%" src="./images/hero_0.5.png"></a>
+[**[Hire A Talent](https://tally.so/r/3lldZB)**]
+[**[Request A Quote](https://tally.so/r/3lldZB)**]
+[**[Find A Jobs](https://tally.so/r/3j9Qza)**] \_\_\_
+[**[For Companies](https://tally.so/r/3lldZB)**]
+[**[For Developers](https://tally.so/r/3j9Qza)**]
+
+[**[Chat With Me](https://www.linkedin.com/in/dimetrix)**]
+[**[Work With Me](https://www.linkedin.com/in/dimetrix)**]
+
 # 💫 About Me:
 🌐 Hi! I’m Oktavian  <br>💼 Project Manager at Elevance IT  <br>🔥 Driven to help teams bring ideas to life  <br>📬 Open to connect and collaborate!
 
